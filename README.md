@@ -2,7 +2,7 @@
 - 👀 I’m interested in learnong more about cryptocurrency.
 - 🌱 I’m currently learning everything about crypto
 - 💞️ I’m looking to collaborate on anyone who are knowledgeable about crypto/
-- 📫 How to reach me in my email at totoy4741@gmail.com
+- 📫 How to reach me in my email at tataberto33@gmail.com
 
 <!---
 tataberto33/tataberto33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
